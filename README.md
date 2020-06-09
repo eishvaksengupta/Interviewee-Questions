@@ -5,7 +5,7 @@ At the time of joining, the HR portrays the company like it is match made in Hea
 
 ## :question: Questions
 
-| S.No. |Question |
+| S.No |Question |
 |---|---|
 | 1 | Will the Notice period mentioned in the Offer letter, can be increased in future(Actually happened to me)? |
 | 2 | Is there any legal bonds regarding the job and if yes what are their norms and policies (Make sure to ask that)? |
